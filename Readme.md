@@ -1,5 +1,4 @@
 This sermon is IN PROGRESS and awaits frankspeech to open up for "the rest of us" to be able to post
-
 "Better is the end of a thing than the beginning thereof" (from Ecc. 7:8).  I want to encourage you and share why I believe this verse applies to the Church - it shall soon be better than it was in the book of Acts as it continues from "faith to faith" as God intends! (from Rom. 1:17)  I trust it will be your faith, not your knowledge, not your principles of doctrine (Heb. 6:1), that will grow in the few minutes of reading this.
 
 Like other Christians are, you were taught the Bible is true.  Certainly it is true and true on innumerable levels and on every level.  Yet curiously enough, you were also taught that several verses in it are NOT true today based on something about "dispensation".  Sure, the verses were true when written, but supposedly many aren't any more because "we're no longer in that dispensation".  So the Bible is true, but just not all of it.  We're all comfortable with this, right?
@@ -136,7 +135,7 @@ Remember the contrast between the Thessalonians and the more noble Bereans: the 
 
 Here, now, is the evidence...what God says and offers us righteousness to believe.
 
-For the very first 3 Bible occurrences of "dispensation" Jesus uses it in Luke 16:2,3,4.  Jesus tells how the unjust steward was told that he was about to lose his "DISPENSATION"...his JOB.  His master was telling that unjust steward that he was about to get FIRED.  The other 6 occurrences of the term are used by the Apostle Paul, and they refer to
+For the very first 3 Bible occurrences of "dispensation" Jesus uses it in Luke 16:2,3,4.  Jesus tells how the unjust steward was told that he was about to lose his "DISPENSATION"...his JOB, not his TIME SPAN.  His master was telling that unjust steward that he was about to get FIRED, not KILLED.  The other 6 occurrences of the term are used by the Apostle Paul, and they refer to
 
 1) 3 times of Paul's commission to preach the Gospel (i.e., his JOB - 1 Corinthians 9:17, Ephesians 3:2, Colossians 1:25), or
 2) 2 times in referring to a WORK of God (Ephesians 3:9, 1 Timothy 1:4 but presumably not included in some manuscripts), or
@@ -171,4 +170,4 @@ Now for the alternative:
 
 From Ecc. 7:8-10 - "Better is the end of a thing than the beginning thereof...Say not thou, What is the cause that the former days were better than these? for thou dost not enquire wisely concerning this."
 
-Now faith is the successful outcome of one's endeavors to make envisioned desires to happen (Heb. 11:1 understood in context of the remainder of the chapter).  Let's envision the kingdom of heaven and make it happen.  The generation that does so, and there will be one, will be regarded as members of the Hebrews chapter 11 club.
+Now faith is evidenced by your determined persistence on your endeavor until your envisioned desire materializes (from Heb. 11:1 understood in context of the remainder of the chapter).  Let's envision the kingdom of heaven and make it happen.  The generation that does so, and there will be one, will be regarded as members of the Hebrews chapter 11 club.
