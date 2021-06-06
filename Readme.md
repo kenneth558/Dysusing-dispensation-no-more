@@ -165,7 +165,7 @@ Expansion of #3 above:
 I hope now you're better able to know why you were so uncomfortable explaining away many scripture verses that church life obviously doesn't line up with.
 
 1 Cor 1:10
-Now I beseech you, brethren, by the name of our Lord Jesus Christ, that ye all speak the same thing, and that there be no divisions among you; but that ye be perfectly joined together in the same mind and in the same judgment.  This will be impossible if we continue misusing dispensation, plain and simple
+"Now I beseech you, brethren, by the name of our Lord Jesus Christ, that ye all speak the same thing, and that there be no divisions among you; but that ye be perfectly joined together in the same mind and in the same judgment."  This will be impossible if we continue misusing dispensation, plain and simple.  This will be impossible without receiving ALL scripture verses in SCRIPTURE context because one church will not and should be bullied by another church to discard their verse set in preference to discarding another verse set, and even more certainly neither is willing nor should be to discard both verse sets.
 
 Now for the alternative:
 
