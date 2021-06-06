@@ -1,4 +1,6 @@
-This sermon is IN PROGRESS and awaits frankspeech to open up for "the rest of us" to be able to post
+This sermon is IN PROGRESS and awaits frankspeech to open up for "the rest of us" to be able to post.
+
+
 "Better is the end of a thing than the beginning thereof" (from Ecc. 7:8).  I want to encourage you and share why I believe this verse applies to the Church - it shall soon be better than it was in the book of Acts as it continues from "faith to faith" as God intends! (from Rom. 1:17)  I trust it will be your faith, not your knowledge, not your principles of doctrine (Heb. 6:1), that will grow in the few minutes of reading this.
 
 Like other Christians are, you were taught the Bible is true.  Certainly it is true and true on innumerable levels and on every level.  Yet curiously enough, you were also taught that several verses in it are NOT true today based on something about "dispensation".  Sure, the verses were true when written, but supposedly many aren't any more because "we're no longer in that dispensation".  So the Bible is true, but just not all of it.  We're all comfortable with this, right?
