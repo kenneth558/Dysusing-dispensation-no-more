@@ -179,4 +179,4 @@ Now faith is the product of your envisioned desires; better yet, of your efforts
 
 If you're determined to be an inflexible old wineskin because you're too proud to change your public stance you've preached for so long, I'm sorry for you, but I do wish peace upon you until your replacement.
 
-DISCLAIMER:  A few observations I've stated were first taught by others, including Kat Kerr and Howard Storm that I know of, though I do know these are fallible people like we all are.
+DISCLAIMERS:  A few observations I've stated were first taught by others, including Kat Kerr and Howard Storm that I know of, though I do know these are fallible people like we all are.  This composition is in a state of change - many of these thoughts are expressed disordered from what I think would be ideal.  I am working on it....
