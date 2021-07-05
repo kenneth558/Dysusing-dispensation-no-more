@@ -193,7 +193,7 @@ Incidentally, the reason God gave to this person I write of is that women [are w
 
 ONE FINAL CONSIDERATION - IF GOD ADDED OTHER THINGS TO THE LIST MEN HAVE MADE
 
-It's bad enough to think that humans can choose arbitrarily which teachings to ignore as obsolete due to any supposed "dispensation" changes.   Shouldn't we also ask ourselves about God choosing additional ones the He has kept just as secret from us?  I mean, "dispensation"-minded people are claiming the whole concept is inspired, right?  Since no overt list of obsolete teachings can be found in writing, what if God's REAL "obsolete list" actually contains assorted promises that we have been holding dear, and we'll never know in this life that we claimed non-claimable "dispensation"-obsolete promises, blessings, and hopes? That would be enitrely fair, wouldn't it?  How would we like that?
+It's bad enough to think that humans can choose arbitrarily which teachings to ignore as obsolete due to any supposed "dispensation" changes.   Shouldn't we also ask ourselves about God choosing additional ones the He has kept just as secret from us?  I mean, "dispensation"-minded people are claiming the whole concept is inspired, right?  Since no overt list of obsolete teachings can be found in writing, what if God's REAL "obsolete list" actually contains assorted promises that we have been holding dear, and we'll never know in this life that we claimed non-claimable "dispensation"-obsolete promises, blessings, and hopes? That would be entirely fair, wouldn't it?  How would we like that?
 
 OTHER TEACHINGS ARE ALSO SIMILARLY DISCARDED
 
