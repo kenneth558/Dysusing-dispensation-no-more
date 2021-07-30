@@ -212,4 +212,4 @@ Faith is evidenced by not giving up until the hope become substance (from Heb. 1
 
 If you're determined to be an inflexible old wineskin maybe because you're too proud to change your public stance you've preached for so long, I'm sorry for you, but I do wish peace upon you until your replacement.  If you're one who limits God only to be in "cookie-cutter" repeat acts without further creativity or improvement, so that you say "That exact example has to be in the Bible or it can't be of God", know that limiting the Holy One of Israel is condemned (Ps 78:41), and Jesus demonstrated variety in His deeds and left open-ended the greater works variety He knew the later Church would demonstrate.
 
-DISCLAIMERS:  I lay no claim of originality to any of the concepts herein.  A few observations I've stated were first taught by others that I know of, including Kat Kerr and Howard Storm.  Morer recently I've been hearing others.
+DISCLAIMERS:  I lay no claim of originality to any of the concepts herein.  A few observations I've stated were first taught by others that I know of, including Kat Kerr and Howard Storm.  More recently I've been hearing others.
