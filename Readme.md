@@ -26,7 +26,7 @@ CAREFUL WHICH OF GOD'S WORDS YOU BELIEVE.  Some theologian might be peddling a m
 TECHNICALLY "ADMINISTRATION", BUT BE HONEST - YOU REALLY MEAN "TIME PERIOD OF DIFFERENT STRICTNESS"
 ____________________________________________________________________________________________________
 
-The word "dispensation" is really used in the Bible, but never even REMOTELY correlating to a time or age.  The first true dispensation to mankind is stated in Gen. 1:26: "...let them have dominion over...all the earth".  More on that later...
+The word "dispensation" is really used in the Bible, but never even REMOTELY correlating to a time or age.  The first true dispensation to mankind is stated in Gen. 1:26: "...let them have dominion over...all the earth".  This dispensation is stated again in verse 28 but preceeded there by further dispensation: "Be fruitful, and multiply, and replenish the earth".  More on that later...
 ____________________________________________________________________________________________________
 
 INHERITED THE EARTH YET?  TOO LATE...DISPENSATION CHANGED - SOME REALLY DO MISBELIEVE LIKE THAT!
