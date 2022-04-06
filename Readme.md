@@ -6,6 +6,8 @@ MISUSING DISPENSATION - NO MORE!
 
 "NO LONGER UNDER/IN THAT DISPENSATION."  Where is your scripture reference for that assertion, please?
 
+"But I fear, lest by any means, as the serpent beguiled Eve through his subtilty, so your minds should be corrupted from the simplicity that is in Christ."  2 Corintians 11:3 (Note the word "simplicity")
+
 Like other Christians are, you were taught the Bible is true.  Certainly it is true, and true on innumerable levels, and true on every level.  It is supernaturally true, and I encourage you to have it handy for searching as you read/listen to this.  Yet curiously enough, you were also taught that several verses sealed therein (by their transformation from verbal or thoughts to written) are NOT true today based on something about "dispensation" - a fallacious state I'll call "dispensationally obsolete".  Sure, the verses were true when written, but supposedly many aren't any more because "we're no longer under that dispensation" and "we're under a dispensation of grace" rather than for one of the legitimate reasons a later chapter and verse might explicitly declare.  So the Bible is true, but just not all of it - not the verses one might arbitrarily choose to take offense at because they don't line up with what their eyesight or their pride tells them.
 
 TURNING GOD'S SILENCE, SPACE TO REPENT & LONGSUFFERING TOWARD DISOBEDIENCE, INTO HIS CONSENT, INTO HIS ENDORSEMENT, INTO OUR DUTY TO REMAIN DISOBEDIENT, AND FINALLY CODIFYING IT INto DOCTRINE - NO MORE!
